@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @muuktoi
+- 👀 I’m interested in technology.
+- 🌱 I’m not currently learning anything.
+- 📫 How to reach me? https://bit.ly/DM-Iiy
